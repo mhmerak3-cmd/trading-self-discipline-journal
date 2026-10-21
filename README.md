@@ -1,0 +1,1 @@
+# trading-self-discipline-journal
